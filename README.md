@@ -1,6 +1,6 @@
 Manpreet Singh
-2374 Rue John Campbell, LaSalle, QC H8N1C6
-(705) 772 1169 | vickyarora.singh@gmail.com
+43 Dexter street Winnipeg MB R2R 1A7
+(431) 866 7575 vickyarora.singh@gmail.com
 
 Professional Summary
 Highly analytical, results-driven, young man works quickly and accurately under tight deadlines. Capable of working independently with minimum supervision, and committed to providing high quality service to every work, with focus on health, safety and other issues. Professional, capable, and motivated individual who consistently performs in challenging environments. Ambitious and goal oriented with clear vision of future objectives.
