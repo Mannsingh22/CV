@@ -1,5 +1,5 @@
 Manpreet Singh
-43 Dexter street Winnipeg MB R2R 1A7
+880 Cambridge Street
 (431) 866 7575 vickyarora.singh@gmail.com
 
 Professional Summary
