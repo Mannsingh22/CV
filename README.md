@@ -3,16 +3,16 @@ Manpreet Singh
 (431) 866 7575 vickyarora.singh@gmail.com
 
 Professional Summary
-Highly analytical, results-driven, young man works quickly and accurately under tight deadlines. Capable of working independently with minimum supervision, and committed to providing high quality service to every work, with focus on health, safety and other issues. Professional, capable, and motivated individual who consistently performs in challenging environments. Ambitious and goal oriented with clear vision of future objectives.
+A highly analytical, results-driven, young man who works quickly and accurately under tight deadlines. Capable of working independently with minimum supervision, and committed to providing high quality service to every work, with a focus on health, safety, and other issues. A professional, capable, and motivated individual who consistently performs in challenging environments. Ambitious and goal oriented with clear vision of future objectives.
 Skills
 •	Quick Learner
 •	Friendly and helpful
 •	Dedicated team player
 •	Superior problem-solving skills
 •	Hardworking and self-motivated
-•	Fluent in English and a little familiar to French
+•	Fluent in English and a little familiar with French
 •	Outstanding command over Arithmetic Calculations
-•	Proficient in Basic computer, Microsoft Word and Internet
+•	Proficient in Basic computer, Microsoft Word, and Internet
 •	Earnest business practices 
 Education 
 Cegep de la Gaspesie et des llesies | Mobile Application Development
@@ -20,14 +20,14 @@ Cegep de la Gaspesie et des llesies | Mobile Application Development
 PU- Punjabi University | Bachelors in Computer Applications
 •	Completed in 2016 with first division
 Work History
-Full Time Works
-Kiwi’s Immigrations and academy
+Full-Time Works
+Kiwi’s Immigrations and Academy
 •	Worked for 6 months as an IELTS Trainer
 Awards and Acknowledgements
 •	Won Awards in Abacus and English language activities
-•	Member of planning committee of college events
+•	Member of the planning committee of college events
 •	Participated in Basketball and Cricket tournaments
-•	Engaged in Tech fest competitions in College
+•	Engaged in Tech Fest competitions in College
 Hobbies and Interest 
 •	Cooking
 •	Listening Music
