@@ -12,7 +12,7 @@ Skills
 •	Hardworking and self-motivated
 •	Fluent in English and a little familiar with French
 •	Outstanding command over Arithmetic Calculations
-•	Proficient in Basic computer, Microsoft Word, and Internet
+•	Proficient in Basic computer, Microsoft Word, and the Internet
 •	Earnest business practices 
 Education 
 Cegep de la Gaspesie et des llesies | Mobile Application Development
