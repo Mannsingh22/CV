@@ -16,7 +16,7 @@ Skills
 •	Earnest business practices 
 Education 
 Cegep de la Gaspesie et des llesies | Mobile Application Development
-•	Pursuing
+•	Completed in 2019
 PU- Punjabi University | Bachelors in Computer Applications
 •	Completed in 2016 with first division
 Work History
