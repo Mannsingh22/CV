@@ -35,7 +35,7 @@ Hobbies and Interest
 •	Watching TV programs and Other Live concerts
 •	Playing pool, chess, and playstation
 •	Surfing on Internet about new things to expand my knowledge
-Community Services:
+Community Services 
 •	Participated in the cleanup initiative of local park and ground
 •	Worked in the community kitchen as a dishwasher, food distributor and cook
 •	Distributed warm clothes to the deprived in winters
