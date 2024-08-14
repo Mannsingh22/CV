@@ -30,7 +30,7 @@ Awards and Acknowledgements
 •	Engaged in Tech Fest competitions in College
 Hobbies and Interest 
 •	Cooking
-•	Listening Music
+•	Music
 •	Playing Basketball and Cricket
 •	Watching TV programs and Other Live concerts
 •	Playing pool, chess, and playstation
